@@ -1,0 +1,2 @@
+# O-quadrag-simo-esp-rito-o-Conde-Raum-Raim-ou-Raym-aparece-primeiramente-na-forma-de-um-corvo-ma
+O quadragésimo espírito é o Conde Raum, Raim ou Raym; aparece primeiramente na forma de um corvo, mas após o Comando do Magista ele toma a forma humana. Sua função é roubar tesouros, destruir cidades e honrarias dos homens, e dizer todas as coisas, do passado, presente e futuro; pode causar afeição entre amigos e inimigos. Governa 30 legiões.
